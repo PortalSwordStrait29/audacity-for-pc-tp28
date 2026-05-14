@@ -1,4 +1,4 @@
-# 
+# Audacity for PC | Audacity for Windows rare Script: effects-library & audio-trimming offers the most advanced Audacity for PC | Audacity for Windows script, with effects-library
 
 
 
